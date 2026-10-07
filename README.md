@@ -1,1 +1,2 @@
 # myagsstuff
+im bored ahahahaha
